@@ -1,4 +1,4 @@
-![logo](https://github.com/Mobashirahmed/Mobashirahmed/blob/main/photo_6186031179157845831_y.jpg)
+![logo](https://pin.it/N8nrswA3x)
 - 👋 Hi, I’m @Mobashirahmed
 - 👀 I’m interested in 
 - 🌱 I’m currently learning ...
